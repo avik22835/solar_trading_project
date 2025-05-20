@@ -1,0 +1,1 @@
+# solar_trading_project
